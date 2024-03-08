@@ -1,0 +1,3 @@
+# Chapter 1: the Fated Meeting
+
+It was a nice and cool February day when the high elf mage Himeko and her young apprentice, Cherri Cuelus arrived in the coastal city of Hulbury after Himeko had gotten an invitation from an old friend of Himeko’s to come and see her new collection of magical trinkets. Before going, however, both Himeko and Cherri decided to book a hotel room as Cherri wanted to use this opportunity to try the ice cream that Hulbury is known for and collect new ingredients to brew potions with. After Himeko and Cherri enjoyed lunch the two of them went to Himeko’s friend’s magical store.
