@@ -69,3 +69,17 @@ I suddenly remembered the whole reason why I came with Master was to buy my frie
 "he-Hello?" I asked without even thinking and I noticed one of the Tiefling's ears twitched and she looked up at me, as our eyes met I felt something within me stir and I felt a connection with the Tiefling as if we were destined to meet.
 
 "Why does it feel like I knew her?"
+
+# Terminology
+
+Hulbury: a busy harbor and port city that sits along the bay of Hulbury, also known as Hulbury Bay. Hulbury is mostly home to porters, fishermen, and their families along with people from the surrounding red forest, Hulbury is known for its seafood and night markets that give the city a lively nightlife
+
+Amethyst Dragon: one of the Gem flights, Amethyst Dragons are regal creatures known for their Wisdom and knowledge of the stars and fate. however, this wisdom is offset by Amethyst Dragons being infamously known for being Aloof and often not caring for the conflicts between good and evil, seeing them as mere distractions.
+
+Tiefling: Tieflings are a race of Demons that hail from the Wrap, an ever-changing realm of chaos and madness, unlike most demons Tieflings are a people filled with emotions of fear, sorrow, joy, and others often associated with humans and the other peoples of Theia. this along with their longing to be a part of the mortal world has caused many Tieflings to start to live in Theia and other realms, but thanks to their demonic blood and appearance they are often seen as monsters and discriminated against
+
+Merwyrm: Merwyrms are one of the most ancient creatures to be found in the sea and are known as 'guardians of the depths' They are known for their connection with the sea elves and their ability to create a fog that causes someone to become dazed and enter a deep dream.
+
+Royal Manticore: Manticores that were not corrupted by demonic magics these Manticores remained noble and prideful creatures with a lion's head, eagle wings, and a scorpion's tail. they live in prides of up to 5 and rarely interact with other creatures.
+
+
